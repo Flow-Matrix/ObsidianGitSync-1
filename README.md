@@ -1,0 +1,1 @@
+# ObsidianGitSync-1
